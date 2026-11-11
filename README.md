@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @swamy471
+- 👋 Hi, I’m @varun
 - 👀 I’m interested in editing photos 
 - 🌱 I’m currently learning to improve quality of the photos
 - 
